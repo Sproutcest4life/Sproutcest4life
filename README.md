@@ -10,3 +10,6 @@
 　✦　... ✦˚ . ★⋆. ࿐࿔ Ask 4 C+H unless i have it in my name 　✦　... ✦˚ . ★⋆. ࿐࿔
 
 ✦　... ✦˚ . ★⋆. ࿐࿔ Anything important is said in my main @DesiredDreams 　✦　... ✦˚ . ★⋆. ࿐࿔
+
+
+![image](https://github.com/user-attachments/assets/4e5a08b5-bc66-4661-bb61-ca54b3e66776)
